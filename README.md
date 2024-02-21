@@ -11,7 +11,7 @@
   * 💬 I increase my tasks every day
   * 📖 And reading documentation makes that a lot easier
  
-* ⚡ Fun fact: 😻😻😻
+* ⚡ Fun fact: ➡ 😻😻😻
 
 
 <!--
